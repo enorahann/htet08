@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Htet Htet Mya Han
 - 👀 I’m interested in Web Desgin and Developing
 - 🌱 I’m currently learning UI/UX Desgin and Web Developing 
-- 📫 How to reach me lrismathrue0810@gmail.com or +959 942 228 934
+- 📫 How to reach me lrismathrue0810@gmail.com 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm Gay!! 
 
